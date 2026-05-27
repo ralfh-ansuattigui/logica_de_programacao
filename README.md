@@ -1,3 +1,8 @@
+
+fjwpiifwrigjpier
+g´jefpgbjjef
+e´gojepihjwr0h
+
 # logica_de_programacao
 Trabalho para NF da disciplina
 
